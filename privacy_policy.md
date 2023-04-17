@@ -69,7 +69,7 @@ if we are involved in a merger, acquisition, or sale of all or a portion of our 
 
 Changes to our Privacy Policy
 
-This Privacy Policy may change from time to time. If we decide to change this private policy, we will provide you additional forms of notice of modifications or updates as appropriate under the circumstances. Your continued use of BVP products following the posting of changes will mean you accept those changes.
+This Privacy Policy may change from time to time. If we decide to change this private policy, we will provide you additional forms of notice of modifications or updates as appropriate under the circumstances. Your continued use of CoinCount products following the posting of changes will mean you accept those changes.
  
 Contact us
 
